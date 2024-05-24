@@ -7,7 +7,7 @@
 💞️ I’m looking to collaborate on web development projects and machine learning research.
 
 📫 How to reach me: [Email](mailto:harshmahilang7@gmail.com
-) | [LinkedIn]((https://www.linkedin.com/in/harsh-mahilang-07/))
+) | [LinkedIn](https://www.linkedin.com/in/harsh-mahilang-07/)
 
 😄 Pronouns: he
 
